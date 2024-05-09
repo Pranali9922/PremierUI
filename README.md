@@ -18,11 +18,6 @@ Dive into the world of high fashion with our cutting-edge website, designed to c
 
 4. **Personalized Content:** Discover the latest fashion trends and industry insights tailored just for you. Our dynamic content adapts to your preferences, ensuring that every visit feels like a personalized fashion showcase.
 
-5. **Interactive Forms:** Connect with us effortlessly through interactive contact forms and subscription options. Whether you're seeking modeling opportunities or simply want to stay in the loop, we're just a click away.
-
-6. **Real-Time Updates:** Stay ahead of the curve with real-time updates on upcoming events, model announcements, and exclusive promotions. Our website is constantly evolving to keep you informed and inspired.
-
----
 
 ### 🌟 Join the Premier Models Experience
 
